@@ -2,4 +2,6 @@
 
  Este é um repositorio teste para ensinar as manhas.i
 
- Saiba mais em [jhon12alves@gmail.com.br] 
+ Saiba mais em [jhon12alves@gmail.com.br]
+
+ Subscribe in chane asdasl
